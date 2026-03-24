@@ -61,5 +61,5 @@ School ERP system with:
 ##  Connect with Me
 
 -  Email: shlokdakulg6097@gmail.com  
--  LinkedIn: [https://linkedin.com/in/your-link](https://www.linkedin.com/in/shlok-dakulagi-a47156332?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)  
--  Instagram: [Instagrame](https://www.instagram.com/d__shlok?igsh=MTYyeW1zbmM1cXhmaA==)
+-  LinkedIn: [shlok dakulgi](https://www.linkedin.com/in/shlok-dakulagi-a47156332?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)  
+-  Instagram: [d__shlok](https://www.instagram.com/d__shlok?igsh=MTYyeW1zbmM1cXhmaA==)
